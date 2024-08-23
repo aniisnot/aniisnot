@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aniisnot
 - 👀 I’m interested in Designing and Illustrating
 - 🌱 I’m currently learning Silk Screen Printing
-- 💞️ I’m looking to collaborate on any Design projects!
+- 💞️ I’m looking to collaborate on any design projects!
 - 📫 How to reach me animalkhasiani@gmail.com <3
 
 <!---
